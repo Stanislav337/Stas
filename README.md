@@ -4,4 +4,4 @@
 2. Национальность: Русский
 3. Место работы: Военный
 
-![alt text](1650474626_2.jpg)
+![1650474626_2](https://github.com/user-attachments/assets/9295c2ec-9e88-462c-b3d1-2986ab2cb61b)
